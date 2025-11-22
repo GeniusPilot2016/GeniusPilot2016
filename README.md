@@ -29,7 +29,7 @@ If you have a project or idea, tell me what you’re building, what you need, an
 ## Contact
 - Email: nisaozdogan280@gmail.com
 - YouTube: https://www.youtube.com/@geniuspilot2016
-- TikTok: @geniuspilot2
+- TikTok: @geniuspilot2016
 
 ## Fun fact
 I can play piano — and I like making tunes using the motherboard beeper (system speaker) for a retro feel 🖥️🎹
